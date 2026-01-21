@@ -1,1 +1,1 @@
-
+At dawn, when the bakery filled with the warm smell of fresh bread and sugar, the mice were the first to appear. They crept out from behind sacks of flour, their tiny paws leaving soft trails in the dust as they searched for crumbs and forgotten pieces of pastry. To them, the bakery was a kingdom of endless treats.
